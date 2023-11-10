@@ -11,7 +11,7 @@
 
 -utilizo esse espaço para minha organização e compatilhamento dos projetos desenvolvidos
 
-### você entra em cantato comogo 
+### você entra em cantato comigo 
 
 paula.santos.ana0702@escola.pr.gov.br
 
